@@ -1,1 +1,3 @@
-# joshlowen.github.io
+# NeoSphere.Live
+## Explore the New Smart Economy
+
